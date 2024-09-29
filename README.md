@@ -1,1 +1,1 @@
-# jubilant-palm-tree
+# jubilant-palm-trees
